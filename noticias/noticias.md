@@ -1,4 +1,4 @@
-## ¿Conviene comprar dólar ahorro en 2025?
+## ¿Conviene comprar dólar ahorro en 2025 ?
 Fecha: 2025-08-04
 Slug: dolar-ahorro-2025
 
